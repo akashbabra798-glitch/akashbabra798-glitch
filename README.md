@@ -66,7 +66,7 @@ promotion trends, and workforce performance.
 
 ## 📫 Connect With Me
 - LinkedIn: [Akash Babra](https://linkedin.com/in/akash-babra-995717251)
-- Email: your email here
+- Email: akashbabra798@gmail.com
 
 ---
 
