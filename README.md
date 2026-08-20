@@ -6,7 +6,7 @@
 🌱 Currently building my data analytics portfolio
 💼 Open to Data Analyst opportunities
 
----
+----
 
 ## 🛠 Skills
 | Tool | Level |
